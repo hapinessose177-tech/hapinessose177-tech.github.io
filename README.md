@@ -1,2 +1,2 @@
 # hapinessose177-tech.github.io
-Happiness Marketing Expert – Marketing, E-commerce, Web Development &amp; Business Strategy
+Happiness Tech Expert – Mobile Development, Game developer, Web Development &amp, E-commerce and Shopify Developer; Business Strategy
